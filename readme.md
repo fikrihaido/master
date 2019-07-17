@@ -1,3 +1,1 @@
-Gw ganteng
-
-Nih tool buat haik whatsapp 
+mohon jangan pergunakan semau anda . pergunakan sebijak mungkin 
